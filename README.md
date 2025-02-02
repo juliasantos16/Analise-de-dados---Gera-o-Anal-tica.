@@ -1,0 +1,1 @@
+# Analise-de-dados---Gera-o-Anal-tica.
